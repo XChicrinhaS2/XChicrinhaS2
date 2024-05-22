@@ -1,4 +1,4 @@
-## Hi there 👋
+## Sup man, a realdy have a disc suuc
 
 <!--
 **XChicrinhaS2/XChicrinhaS2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
